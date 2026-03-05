@@ -109,16 +109,19 @@ html:`
 
 <span class="signal">TRANSMISSION START</span><br><br>
 
-TRANSMISSION START
+happy 8th mensiversary, aooo! :p
+we meet again on the 7th (yeaaayyy!) and i swear there’s never a single time i’m not excited to welcome a new month, because… besides welcoming a new month, i also get to celebrate our little “7” day hihi >___< it’s like the calendar itself is cheering for us.
 
-Sometimes I wonder if you notice how softly you exist inside my universe. Sometimes I wonder if you notice how softly you exist inside my universe.
-Sometimes I wonder if you notice how softly you exist inside my universe.
+aoo, thank you so much for everything you’ve given me. for every tiny gesture, every reassurance, every soft word, and especially for all the love you’ve poured into me for these past 8 months. sometimes i sit and think about it and i’m like… wow, i’m really this lucky, yaa? to be loved by you pastinya.
 
-Sometimes I wonder if you notice how softly you exist inside my universe. Not loud. Not chaotic.
+i hope you’ll keep giving your love to me for a very, very long time (i mean forever-ever if possible!!!). because i plan to keep loving you just as much, if not more, every single day. i love you sooo much, it’s actually embarrassing how much my heart melts because of you. <3
 
-But like late night radio waves that stay playing even when the world sleeps.
+you deserve love. you deserve all the good things in this world, aoo. i always pray that you’re surrounded by kind people and beautiful moments, because seeing you happy makes me happy too :D your smile feels like my favorite reward.
 
-END SIGNAL
+and of course, i will always spread happiness to you. i’ll be your safe place, your biggest supporter, your personal cheerleader… and YES, i’m fully ready to be your sun the one who will always shine on you, warm you up on your cold days, and remind you that you’re never alone.
+
+8 months down, and i still get butterflies. 8 months in, and i still choose you. today, tomorrow, and every 7th after this. happy our day, aleee! :3
+
 <span class="signal">END SIGNAL</span>
 
 </div>
